@@ -57,7 +57,7 @@
 - 📧 Email: **tolubaevazimbek@gmail.com**  
 - 💬 Telegram: [@Azziko](https://t.me/Azziko)  
 - 📷 Instagram: [Tolu6ev__](https://instagram.com/Tolu6ev__)  
-- 💼 LinkedIn: *(если есть — добавь ссылку)*  
+
 
 ---
 
